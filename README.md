@@ -1,1 +1,0 @@
-# 170441100026_DewiAnggawati_KNN
